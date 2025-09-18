@@ -1,7 +1,7 @@
  
-[<img src="/images/look.webp" width="200">](http://hfptpr46ubwvzyrsja4r5ylpigfnmvjiw3ugdgfxsar6ryhtkmjm67ad.onion)
+[<img src="/images/look.webp" width="200">](http://blackopsaax7ieeljectvi3vn3a5m2wfssylcdqaswrvlbeptwzv5oid.onion)
 
-<a href="http://hfptpr46ubwvzyrsja4r5ylpigfnmvjiw3ugdgfxsar6ryhtkmjm67ad.onion"><img src="/images/footer.webp" alt="Verified blackops dark web" style="max-width: 100%;"></a>
+<a href="http://blackopsaax7ieeljectvi3vn3a5m2wfssylcdqaswrvlbeptwzv5oid.onion"><img src="/images/footer.webp" alt="Verified blackops dark web" style="max-width: 100%;"></a>
  
 
 #Advantage of Black Ops Market: Real-time market overview tools to keep users informed.
@@ -22,4 +22,7 @@ Accessing MarketWatch Tools
 - Use trusted darknet aggregators that track Black Ops activity  
 - Join official forums or channels where data summaries are posted regularly
 
-For official updates and MarketWatch insights, visit [Black Ops Official Site](http://hfptpr46ubwvzyrsja4r5ylpigfnmvjiw3ugdgfxsar6ryhtkmjm67ad.onion).
+For official updates and MarketWatch insights, visit [Black Ops Official Site](http://blackopsaax7ieeljectvi3vn3a5m2wfssylcdqaswrvlbeptwzv5oid.onion).
+
+
+Update:  18 September link is back online and functioning
